@@ -37,3 +37,6 @@ Bu projenin temel amacı, biyobelirteç verileri yardımıyla meme kanseri teşh
 **Fatma Ayben Coşkun**  
 Çankırı Karatekin Üniversitesi  
 İstatistik Bölümü – 1. Sınıf  
+linkedIn: www.linkedin.com/in/ayben-coskun-95337b33b
+
+
